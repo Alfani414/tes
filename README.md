@@ -1,2 +1,2 @@
-# tugas pertemuan 3,4, & 5 (classromm)
+# tugas pertemuan 3,4, & 5 (classroom)
 
